@@ -1,1 +1,1 @@
-# manifest
+# retards 🤡
